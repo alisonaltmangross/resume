@@ -52,8 +52,8 @@
 #####EDUCATION	
 
 **Temple University School of Law**, Estate Planning Certificate, 2009
-**The George Washington University Law School**, J.D. with honors, 2004		
 
+**The George Washington University Law School**, J.D. with honors, 2004		
 
 + Notes Editor, The Public Contract Law Journal
 + West Publishing Award for Clinical Achievement in Family Law	
