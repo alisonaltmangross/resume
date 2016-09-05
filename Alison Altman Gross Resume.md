@@ -1,5 +1,5 @@
 ###ALISON ALTMAN GROSS
-######*1423 33rd Avenue  •  Seattle, WA 98122  •  215.435.8524*
+######*Seattle, WA  •  215.435.8524*
 ######*alison@altmangross.com  •  [www.altmangross.com](http://www.altmangross.com)*
 
 #####EXPERIENCE	
