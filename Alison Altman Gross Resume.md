@@ -33,8 +33,8 @@
 *Associate, Trusts & Estates and Commercial Litigation Departments, 2006-2010*
 
 + Represented high net worth individuals regarding estate planning and business succession.
-+ Counseled individual and institutional clients regarding trust and estate administration.	
-• Advised and represented individual and institutional clients in Orphans’ Court.  
++ Counseled individual and institutional clients regarding trust and estate administration.
++ Advised and represented individual and institutional clients in Orphans’ Court.  
 + Represented corporations, banks, and individuals in a variety of litigation matters in federal and state court. 
 
 **Philadelphia Volunteers for the Indigent Program, Philadelphia, PA**
