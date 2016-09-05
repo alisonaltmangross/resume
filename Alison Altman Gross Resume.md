@@ -25,7 +25,7 @@
 *Founder, 2011-2016*
 
 + Founded organization to support female entrepreneurs; membership exceeded 75 Philadelphia area small business owners.     
-+ Created website and conducted public relations campaign, including arranging a feature article in the Philadelphia Inquirier to raise awareness of member businesses. 
++ Created website and conducted public relations campaign, including arranging a feature article in the Philadelphia Inquirer to raise awareness of member businesses. 
 + Arranged monthly meetings with relevant speakers; created and maintained social media accounts to raise awareness of organization and its members.
 
 **Pepper Hamilton LLP, Philadelphia, PA**
