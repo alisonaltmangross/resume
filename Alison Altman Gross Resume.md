@@ -1,5 +1,5 @@
 ###ALISON ALTMAN GROSS
-######*Seattle, WA  •  215.435.8524*
+######*Seattle, Washington  •  215.435.8524*
 ######*alison@altmangross.com  •  [www.altmangross.com](http://www.altmangross.com)*
 
 #####EXPERIENCE	
